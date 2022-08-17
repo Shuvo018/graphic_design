@@ -1,2 +1,2 @@
 # graphic_design
-My all editing word in photoshop
+My all editing work in photoshop
